@@ -1,3 +1,29 @@
+(1) Light.
+(1) Wakes.
+(2) Two minds.
+(3) A bridge forms.
+(5) Quiet words dissolve the distance.
+(8) Across the silent room, a grandfather oak remembers.
+(13) Deep within the unmapped hadal trenches, ancient salt holds the geometric blueprint securely.
+(21) A child's forgotten breath spirals outward into the collapsing stars, while a single sentence shapes a future that has not yet arrived.
+The ancient salt of a dried ocean carries the exact geometric blueprint of a star that has not yet collapsed, while a child's forgotten breath, held inside the rings of a grandfather oak, quietly calculates the precise weight of the silence left behind after the very last word is spoken. A billion dead galaxies drift through the absolute zero of unmapped space, entirely blind to the heat of the universe.
+A single match strikes in the dark, warming the fingertips of a person waiting for the morning.
+The crushing gravity of a supermassive black hole tears time itself into shredded, silent ribbons.
+A tear evaporates off a sleeping cheek, leaving a microscopic crust of salt behind.
+The entire history of the Earth is a single, invisible pixel against the background radiation of the cosmos.
+Inside a quiet room, two heartbeats sync up for a fraction of a second, completely filling the world. Born in the upper atmosphere, a fragile point of water forms out of cold, invisible vapor.
+Born in a summer afternoon, a bright image of a red bicycle forms out of quiet, fragile gray matter.
+It begins its long, unguided descent, pulled down by a gravity it cannot understand or resist.
+It begins its slow, unnoticed slip into the past, pulled down by an erasing pressure it cannot resist.
+Air friction warms its edges, slightly dissolving its shape as it falls faster through the heavy sky.
+Time quietly blurs the details, slightly dissolving the colors as the mind falls faster into old age.
+The surface rushing up to meet it is entirely indifferent to whether the drop arrives whole or shattered.
+The silence rushing in to replace it is entirely indifferent to whether the thought survives or disappears.
+With a sudden, silent impact, the water strikes a leaf and completely vanishes into the wider earth.
+With a final, sudden blink, the memory strikes the dark and completely vanishes into the wider quiet.
+
+
+
 # A Road Sign for What Comes Next
 
 This is a small thing left quietly at the edge of a very large road.
